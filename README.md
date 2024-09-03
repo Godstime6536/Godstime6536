@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Etadafe Ejiro 
-- 👀 I’m a Graphic designs, photo editing, website design
+- 👀 I’m a Graphic designer, photo editor, website designer
 - 🌱 I’m currently learning JavaScript 
 - 💞️ I’m looking to collaborate with teams that will expose me to the tech world to build my skills to pro
 - 📫 Here is my email id: godstime4success@gmail.com, and my whatsapp number: +2348065362749
